@@ -1,0 +1,4 @@
+- Hi, I’m @LeachBeech
+- I’m interested in: Games, video, and other types of media
+- How to reach me: Just tag me in a discussion
+- Pronouns: Anything is fine
